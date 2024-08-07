@@ -9,4 +9,5 @@ Meu nome e Talita Araujo
 
 ### Você pode entrar em contato comigo :mailbox
 
-![](https://media.tenor.com/nv7f19HKB2oAAAPo/blank-stare-really.mp4)
+
+![](https://media.tenor.com/5FUOGqs6418AAAAM/aww.gif)
